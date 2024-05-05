@@ -4,3 +4,8 @@
   </a>
 </p>
 - I make Paddy models on blender
+{
+    public static void main(String[] args) {
+        System.out.println("Hello, World!");
+    }
+}
