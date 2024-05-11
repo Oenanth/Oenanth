@@ -7,3 +7,8 @@
   <h10>Sigma rule #34: Exploit people's empathy until they can't trust anybody.</h10>
   
   <h10>Sigma rule #69: Don't take a shower.</h10>
+  
+  <h11>"Life has no subtitles"</h11>
+  
+  <h11>"Rely on ur feelings, not logic"</h11>
+
