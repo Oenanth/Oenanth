@@ -11,4 +11,10 @@
   <h11>"Life has no subtitles"</h11>
   
   <h11>"Rely on ur feelings, not logic"</h11>
+  
+  <h11>"Life is not hard, ur just weak"</h11>
+
+ <h11>"It's better to poop in the sink than sink into poop" - Master Ooguay</h11>
+
+ <h11>"Sometimes I burp and all I want in life is to see the fluid dynamics 3D model of the burp molecules propagating through space around my skull" - That one guy from the spelling bee show</h11>
 
