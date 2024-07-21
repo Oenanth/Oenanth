@@ -18,3 +18,8 @@
 
  <h11>"Sometimes I burp and all I want in life is to see the fluid dynamics 3D model of the burp molecules propagating through space around my skull" - That one guy from the spelling bee show</h11>
 
+ <h11>"'He farts to get away',
+He exerts so much power into his high-frequent farts that he is able to propel himself off the ground and fly away." - ding ding khw dwah blablaeble ma blamblam bom bom blam blam oooh wha what's going on on
+</h11>
+
+
