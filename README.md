@@ -1,5 +1,5 @@
 <div align="center">
-  <h2>Ayyy wzzup, welcome to my Github profile!</h2>
+  <h2>"When ur taking an explosive shit and the toilet water touches ur gyatt cheeks"</h2>
   <img src="https://readme-typing-svg.herokuapp.com/?font=courier+new&color=0BF700&lines=You+are+what+you+eat,;eat+is+what+you+are.%20" />
   <blockquote>"After the president’s annual physical, his doctor delivered the news: “Mr. President, the good news is that you have two sides of your brain. The bad news is that on the left side, there isn’t anything right, and on the right side, there isn’t anything left.”</blockquote>
   <h4>I scratched my scalp then I smelled the underside of my fingernails and my scalp smells greasy</h4>
@@ -30,3 +30,12 @@ He exerts so much power into his high-frequent farts that he is able to propel h
  <h11> . </h11>
  
 <h11>"Language - a system of communication that conveys beliefs and values" </h11>
+
+
+<h11>"Bro the looksmaxxing gigachad mogged me so hard</h11>
+
+<h11>He turned every gyatt into a sussy baka from Ohio</h11>
+
+<h11>No cap on gyat fr"</h11>
+
+
