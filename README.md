@@ -4,6 +4,8 @@
   <blockquote>"After the president’s annual physical, his doctor delivered the news: “Mr. President, the good news is that you have two sides of your brain. The bad news is that on the left side, there isn’t anything right, and on the right side, there isn’t anything left.”</blockquote>
   <h4>I scratched my scalp then I smelled the underside of my fingernails and it smells greasy</h4>
   <div align="vertical">
+ <h1>MY DISCORD IS: oenanthe_</h1>
+
   <h10>Sigma rule #34: Exploit people's empathy until they can't trust anybody.</h10>
   
   <h10>Sigma rule #69: Don't take a shower.</h10>
